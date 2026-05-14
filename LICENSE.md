@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Atom for PC | Atom for Windows script with Atom for PC | Atom for Windows vip Script: plugin-system & multi-language-support. Featuring plugin-system and
 
 
 
